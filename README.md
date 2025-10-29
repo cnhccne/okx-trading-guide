@@ -6,7 +6,6 @@ If you're hunting for a crypto exchange that won't nickel-and-dime you with fees
 
 ---
 
-![OKX exchange reputation and global market position](image/84311335567.webp)
 
 ## What Exactly is OKX? Platform Overview
 
